@@ -1,2 +1,2 @@
 # Signup
-<img src="![Hnet-image (1)](https://user-images.githubusercontent.com/97227876/170488927-f9db6cd1-63e4-4231-b3e3-4d1eaadf977a.gif)">
+![Hnet-image (1)](https://user-images.githubusercontent.com/97227876/170489329-35867a95-b6f2-4703-8dcf-84fcb7799713.gif)
